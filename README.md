@@ -1,1 +1,1 @@
-# prova-atitudinal-guilherme_e_pereira 3°A
+# prova-atitudinal-guilherme_e_eduardo 3°A
